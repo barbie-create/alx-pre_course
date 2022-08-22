@@ -1,1 +1,1 @@
-my school
+my scond
