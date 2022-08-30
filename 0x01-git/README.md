@@ -1,1 +1,1 @@
-my scond
+my sconds
